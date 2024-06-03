@@ -10,3 +10,17 @@
 contact.lms.legionbr@gmail.com
 
 ![](https://media.tenor.com/CklorS0ZlHMAAAAM/naruto-weird-face.gif)
+
+NOME COMPLETO
+(18) 991560764
+Email: mateuslomas007@gmail.com
+Linkdin: https://www.linkedin.com/in/mateus-lomas-611155310/
+
+OBJETIVO
+Tornar-me fluente na area da progamação 
+
+FORMAÇÃO ACADEMICA
+Encino Medio - Alfredo Westin Junior (Cursando)
+
+PROJETOS
+Criar sistemas, apps, games, sites, gerar entretenimento, criar uma empresa dedicada e gerar empregos
