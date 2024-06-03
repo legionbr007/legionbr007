@@ -15,11 +15,11 @@ contact.lms.legionbr@gmail.com
 Email: mateuslomas007@gmail.com
 Linkdin: https://www.linkedin.com/in/mateus-lomas-611155310/
 
-OBJETIVO
+OBJETIVO:
 Tornar-me fluente na area da progamação 
 
-FORMAÇÃO ACADEMICA
+FORMAÇÃO ACADEMICA:
 Encino Medio - Alfredo Westin Junior (Cursando)
 
-PROJETOS
+PROJETOS:
 Criar sistemas, apps, games, sites, gerar entretenimento, criar uma empresa dedicada e gerar empregos
