@@ -7,8 +7,6 @@
 
 ### Deseja entrar em contato comigo ? Siga o E-mail abaixo 📪
 
-contact.lms.legionbr@gmail.com
-
 ![](https://media.tenor.com/CklorS0ZlHMAAAAM/naruto-weird-face.gif)
 
 OBJETIVO:
