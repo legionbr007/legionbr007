@@ -11,10 +11,6 @@ contact.lms.legionbr@gmail.com
 
 ![](https://media.tenor.com/CklorS0ZlHMAAAAM/naruto-weird-face.gif)
 
-(18) 991560764
-Email: mateuslomas007@gmail.com
-Linkdin: https://www.linkedin.com/in/mateus-lomas-611155310/
-
 OBJETIVO:
 Tornar-me fluente na area da progamação 
 
